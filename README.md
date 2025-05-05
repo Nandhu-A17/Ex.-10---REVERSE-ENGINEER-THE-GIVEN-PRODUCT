@@ -32,7 +32,7 @@
 
 ### Output:
 
-![image](https://github.com/user-attachments/assets/632866e1-66ac-41bb-a8c4-93b50303998a)
+![Screenshot 2025-05-05 121546](https://github.com/user-attachments/assets/8c2a5172-8802-4b25-a014-0dc1616b2707)
 
 
 ### Name: NANDEESWARI A
